@@ -4,7 +4,7 @@ Eid is a special event for Muslims. It's an event of joy and togetherness. Milli
 
 Let me share with you the story of Rina. A young woman living in Germany chose the fastest way to send money to Bangladesh for Eid 2025.
 
-**For the past 3 years**, Rina has been working as a nurse in Germany. Her family completely relied on her for all expenses. But with their busy schedule. She needed a fast and secure transfer to send money back home. She continually asked herself, What's the **fastest way to send money to Bangladesh for Eid?**
+**For the past 3 years**, Rina has been working as a nurse in Germany. Her family completely relied on her for all expenses. But with their busy schedule. She needed a fast and secure transfer to send money back home. She continually asked herself, What's the **fastest way to send money to Bangladesh for Eid 2025**
 
 One night, as she scrolled through her phone, Rina came across an advertisement for the **Remit Choice app**. Rina downloaded the app, and soon she was able to send money to her family.
 
